@@ -1,1 +1,0 @@
-# farabi2029.github.io
